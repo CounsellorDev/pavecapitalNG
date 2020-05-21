@@ -1,5 +1,3 @@
-img/pave.jpg
-
 PAVE CAPITAL LIMITED
 www.pavecapitalng.com
 Email: sale@pavecapitalng.com, pavecapitalng@gmail.com
